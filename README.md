@@ -1,1 +1,1 @@
-HaI! It's a place where i have some fun with coding and stuff, but i'll probably work here one day. 
+HaI! It's a place where i mess around with programming languages and stuff, but one day it'll turn into my projects' place™. ;)
